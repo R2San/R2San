@@ -1,4 +1,4 @@
-**🖐️ Hi, I’m @Renaldo Robert Sanjaya**
+**🖐️ Hi, I’m Renaldo Robert Sanjaya**
 
 - 👀 I’m interested in:
   
